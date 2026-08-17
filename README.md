@@ -8,4 +8,4 @@ Now I'm past tutorials, building real systems.
 Looking for the company where my skills actually fit.
 Until then, I'll keep learning while building ✌🏽
 
-📫 [mirudhula05004@gmail.com](mailto:mirudhula05004@gmail.com)
+📫 [mirudhula05004@gmail.com](mailto:mirudhula.d534@gmail.com)
