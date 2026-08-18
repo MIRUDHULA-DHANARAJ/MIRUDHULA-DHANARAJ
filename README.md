@@ -5,7 +5,6 @@ I couldn't stop being into it, more than most things, honestly.
 
 Now I'm past tutorials, building real systems.
 
-Looking for the company where my skills actually fit.
-Until then, learn by building ✌🏽
+Finding the right fit. Learning by building until then ✌🏽
 
 📫 [mirudhula.d534@gmail.com](mailto:mirudhula.d534@gmail.com)
