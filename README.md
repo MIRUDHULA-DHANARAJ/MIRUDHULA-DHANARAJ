@@ -6,6 +6,6 @@ I couldn't stop being into it, more than most things, honestly.
 Now I'm past tutorials, building real systems.
 
 Looking for the company where my skills actually fit.
-Until then, I'll keep learning while building ✌🏽
+Until then, learn by building ✌🏽
 
-📫 [mirudhula05004@gmail.com](mailto:mirudhula.d534@gmail.com)
+📫 [mirudhula.d534@gmail.com](mailto:mirudhula.d534@gmail.com)
